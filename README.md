@@ -1,16 +1,32 @@
-## Hi there 👋
+## *BOAS VINDAS AMIGOS!* ❤️
 
-<!--
-**sasadograu244/sasadograu244** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🙋🏻‍♀️: Meu nome é Sara Cristia.
 
-Here are some ideas to get you started:
+🏫: Estudo em escola pública do estado de São paulo.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+💻: Estou me especializando em java Script.
+
+📖: Utilizo esse espaço para minha organização e compartilhamento de projetos.
+
+🎉: Amo sair para festas.
+
+☀️: Oque fasso atualmente gosto de fazer no meu dia-a-dia: 
+
+•cozinhar🥘
+
+•Andar de moto🏍️
+
+•fazer carinho em gatinhos🐈
+
+•Ouvir músicas🎧
+
+•Amo fazer minhas unhas de sexta💅
+
+
+
+
+
+
+
+
+
